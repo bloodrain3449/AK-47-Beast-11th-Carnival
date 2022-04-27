@@ -1,6 +1,6 @@
-# AK-47-Beast-11th-Carnival
+# AK-47-Beast-Gold
 
-**AK-47 | Beast-11th-Carnival**
+**AK-47 | Beast Gold**
 
 **Models Path**
 
